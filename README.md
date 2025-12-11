@@ -5,7 +5,7 @@
 
 **:rocket: Always want to learn more through challenges**
 
-**:raising_hand: Looking for an internship starting 2026, Januaray for 4-6 months!**
+**:raising_hand: Looking for an internship starting 2026, for 4-6 months!**
 
 **:muscle: I can learn all the technologies you need before I start my internship.**
 
